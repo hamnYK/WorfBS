@@ -1,1 +1,1 @@
-# WorfBS is a temporary unofficial board of the WORFLOGY Inc. @ Start-Update Journal
+# WorfBS is a temporary unofficial board of the WORFLOGY Inc. @ CEO Insight
